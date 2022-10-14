@@ -4,4 +4,4 @@
 - 💞️ I’m looking to collaborate on any open source project.
 - 📫 You can reach me through following link: https://bitlee-design.github.io/MyPortfolio/
 
-Thanks for puping up.💞️
+Thanks for poping up.💞️
